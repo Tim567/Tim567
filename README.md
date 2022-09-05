@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tim567
-- 👀 I’m interested in Proframing, Gaming and Sporting
+- 👀 I’m interested in Programing, Gaming and Sporting
 - 🌱 I’m currently learning nothing in particilar just what comes on my path.
 - 💞️ I’m looking to collaborate on nothing next to working, school and hobby programing I curently do not have spare time.
 
